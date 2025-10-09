@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/75f010cf-8952-4aff-a818-eee05fdf5b73)
+![Image](https://github.com/user-attachments/assets/ed1959c7-a08a-4171-9cf1-2abf50a58b63)
 
 ## Привет! Меня зовут Максим 👋
 
